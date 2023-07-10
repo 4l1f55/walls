@@ -1,2 +1,2 @@
 # walls
-some picture i used as background. 
+some pictures i used as background. 
